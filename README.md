@@ -25,6 +25,6 @@
 ## Conéctate Conmigo
 
 * [LinkedIn](https://www.linkedin.com/in/gabriel-lozano-b986541bb/)
-* [Correo Electrónico](lozanogabo5800@gmail.com)
+* lozanogabo5800@gmail.com
 
 ¡Gracias por visitar mi perfil! Estoy siempre abierto a nuevas oportunidades y colaboraciones.
